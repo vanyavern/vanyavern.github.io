@@ -1,0 +1,6 @@
+excerpt_separator: ""
+pygments: true
+markdown: kramdown
+url: http://vanyavern.github.io
+title: vanyavern
+paginate: 5
