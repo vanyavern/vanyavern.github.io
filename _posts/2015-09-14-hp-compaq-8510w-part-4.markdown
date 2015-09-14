@@ -1,0 +1,6 @@
+---
+published: true
+title: HP Compaq 8510w Part 4
+layout: post
+---
+trtrt
