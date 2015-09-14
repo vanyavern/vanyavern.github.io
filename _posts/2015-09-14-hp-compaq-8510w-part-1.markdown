@@ -3,7 +3,6 @@ published: true
 title: HP Compaq 8510w Part 1
 layout: post
 tags: [laptop, repairing, training, course, institute, delhi]
-categories: [Education]
 ---
 <p><b>Assemble and Design</b></p> 
 
