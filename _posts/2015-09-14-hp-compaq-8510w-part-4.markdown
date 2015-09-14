@@ -1,7 +1,0 @@
----
-published: true
-title: HP Compaq 8510w Part 4
-layout: post
-tags: [laptop, repairing, training, course, institute, delhi]
-categories: [Education]
----
