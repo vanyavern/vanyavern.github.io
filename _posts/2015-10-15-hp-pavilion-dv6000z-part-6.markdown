@@ -17,4 +17,5 @@ The dv6000z likewise has HP's Quick play highlight. Tapping the Quick play catch
 The HP dv6000z has laptop repairing course in Delhi parts to suggest about it. It has an extremely alluring look with HP's new Imprint Finish. The Turion64 X2 gives respectable execution and multitasking. It has all the association one could request and has a heavenly polished screen. The unavoidable issue for it will be cost. 
 
 Designed at a cost of $1491 laptop repairing course in Delhi before assessment, it is wandering into the universe of the Fujitsu N3000, Compel HEL30 or even the HP's nc8430 which offer better specs or quality for close to the same cost. It is positively conceivable to get this <a href="http://www.laptop-repairingcourse.com">laptop repairing course in Delhi</a> journal in the $1000 territory by not picking every one of the updates. In the event that one can hold the cost down, I think it makes a decent choice for a mixed media DTR that can travel bit.
-<a href="http://snehavern.tumblr.com/post/131213813718/hp-pavilion-dv6000z-part-1">Part 1</a>
+
+<a href="http://snehavern.tumblr.com/post/131213813718/hp-pavilion-dv6000z-part-1"><b>Part 1</b></a>
